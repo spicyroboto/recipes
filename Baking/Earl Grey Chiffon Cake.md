@@ -19,7 +19,7 @@
     
 ## Instructions
 
-1. Preheat oven to 325F.
+1. Preheat oven to 350F.
 2. Cut teabags and empty into small bowl. Add boiled water and let steep.
 3. Separate eggs into two separate mixing bowls, placing egg whites into fridge to cool until needed.
 4. Add sugar to egg yolks and whisk. Once the mixture is well combined, whisk in vegetable oil.
