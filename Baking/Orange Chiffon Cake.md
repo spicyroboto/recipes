@@ -42,11 +42,13 @@ CAKE
 9. Place cake upside down on cooling rack for one hour. Once cool, run knife around outside, center, and bottom of cake to loosen. Carefully remove base.
 10. Once cooled, pour over glaze and decorate with candied oranges.
 
+
 CANDIED ORANGES
 1. In a saucepan, bring sugar, honey, water, and rosemary to a boil, stirring until sugar dissolves. 
 2. Reduce heat to a simmer and add orange slices, turning occasionally until slices are shiny and peels begin to become translucent (about 50 minutes).
 3. Strain syrup into a jar to use for the cake.
 4. Arrange slices in a single layer on a prepared baking sheet.
+
 
 GLAZE
 1. In a bowl, whisk together icing sugar, milk, orange juice, and syrup until smooth.  
