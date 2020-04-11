@@ -6,10 +6,7 @@ Yield: 8 servings
 
 ## Ingredients
 - ¼ cup chives, chopped
-- 1 bunch green onions (scallions) -- green part only, diced
-- ~~¼ cup dried parsley~~
 - ¼ cup fresh cilantro, chopped (optional)
-- ~~½ cup diced banana peppers~~
 - 1 can (14.5 ounce) diced tomatoes **
 - 7 ounces jar of Cento Roasted Red Peppers , diced and liquid ***
 - 7 ounce can chopped green chilies
