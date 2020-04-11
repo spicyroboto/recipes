@@ -16,9 +16,9 @@ Yield: 8 servings
 - ½ teaspoon coarse ground pepper
 
 ## Instructions
-1. In medium bowl, mix together chili powder, parsley, salt & pepper.
+1. In medium bowl, mix together chili powder, salt & pepper.
 2. Chop cilantro and add to seasonings.
-3. Dice green onions, chives, red peppers and banana peppers and add to seasonings.
+3. Dice chives and red peppers and add to seasonings.
 4. Add liquid from the jar of red peppers.
 5. Pour in green chilies, including the liquid.
 6. Pour in diced tomatoes, including the liquid.
