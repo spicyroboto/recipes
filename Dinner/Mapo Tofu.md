@@ -1,4 +1,5 @@
 # Mapo Tofu (Mabo Dofu)
+
 Prep Time: 10 mins
 Cook Time: 15 mins
 Total Time: 25 mins
