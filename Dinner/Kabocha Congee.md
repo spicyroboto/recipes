@@ -12,7 +12,7 @@ Yield: 4 servings
 
     1 cup rice
     7 cups chicken broth
-    1/2 tsp salt
+    ½ tsp salt
     1 inch of ginger, grated
     1 small kabocha
     1 bunch chives
