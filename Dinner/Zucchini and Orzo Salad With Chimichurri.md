@@ -22,3 +22,5 @@ Instructions
     Cook the orzo according to the package directions, drain in a colander, and then let cool.
     Slice the zucchini into 1/4 inch thick rounds. The zucchini can be added to the salad raw, grilled, or roasted in the oven first. I used a countertop grill to grill the slices, then cut them into quarter rounds after grilling. If roasting in the oven, toss with a little oil, a pinch of salt and pepper, then roast at 400 degrees for about 20 minutes. Let the zucchini cool slightly.
     While the zucchini and pasta are cooling, slice the grape tomatoes in half. Once the zucchini and orzo are no longer steaming hot, combine them in a bowl with the tomatoes. Pour about half of the chimichurri over top, and then toss until everything is coated. Add more chimichurri to your liking (I used about 3/4 of the batch). Taste and add salt or pepper to the salad if needed.
+    
+Recipe from https://www.budgetbytes.com/zucchini-orzo-salad-chimichurri/
