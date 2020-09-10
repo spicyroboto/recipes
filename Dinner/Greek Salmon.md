@@ -1,7 +1,7 @@
 
 Ingredients
 For topping
-1/4 cup extra-virgin garlic olive oil
+1/4 cup extra-virgin olive oil (garlic)
 Juice of 2 lemons
 1 tsp. dried oregano
 1/2 tsp. red pepper flakes
