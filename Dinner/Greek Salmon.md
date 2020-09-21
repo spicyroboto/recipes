@@ -1,5 +1,5 @@
 
-##Ingredients
+## Ingredients
 For topping
 ```
     1/4 cup extra-virgin olive oil (garlic)
@@ -20,7 +20,7 @@ For salmon
         Kosher salt
         Freshly ground black pepper
 
-Directions
+## Directions
 
 Preheat oven to 375°. Marinate feta: In a large bowl, whisk together olive oil, lemon juice, garlic, oregano, and red pepper flakes. Season with pepper and add feta, tossing to coat. Cover and refrigerate for about 10 minutes while preparing other ingredients.
 Roast fish: Scatter the sliced lemon and red onion at the bottom of a large baking dish. Add salmon fillets, skin side down, to baking dish. Season with salt and pepper and bake until opaque and flaky, 18 to 20 minutes.
