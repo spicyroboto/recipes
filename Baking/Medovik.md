@@ -22,7 +22,7 @@
 
 CAKE
 1. Preheat oven to 350F.
-2. Trace circles around a 9-inch pie or cake pan onto 12 baking-sheet-size pieces of parchment paper. Set aside.
+2. Trace circles around a 8-inch pie or cake pan onto 12 baking-sheet-size pieces of parchment paper. Set aside.
 3. In a medium-sized saucepan, combine the sugar, honey and butter over medium heat. Once simmering, cook for 3 to 4 minutes (no specific temperature needed), it should get a faint shade darker and smell wonderful. Remove from heat and whisk in baking soda. Let cool 5 minutes.
 4. Crack eggs into a small bowl, and lightly beat. Whisking vigorously the whole time, drizzle the thinnest stream of the eggs into the honey mixture. Do not stop mixing. Continue until all of the eggs are thoroughly whisked in.  
 5. Whisk in the vanilla, cinnamon, and salt. 
