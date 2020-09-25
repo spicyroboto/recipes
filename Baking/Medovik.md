@@ -5,6 +5,7 @@
 
     CAKE
     1 cup raw honey
+    ½ cup sugar
     1 cup unsalted butter
     6 large eggs
     2½ tsp baking soda
