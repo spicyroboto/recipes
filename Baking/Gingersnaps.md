@@ -18,7 +18,7 @@
 ## Instructions
 
 1. Preheat oven to 350F.
-2. Cream butter with sugar until light and fluffy (about 3 minutes).
+2. Cream butter with sugar until light and fluffy (about 3-4 minutes).
 3. Beat in eggs and molasses until well incorporated.
 4. Add remaining ingredients and mix until combined.
 5. Roll dough into balls and roll in sugar.
