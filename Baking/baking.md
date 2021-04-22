@@ -1,4 +1,4 @@
-# BAKING
+# Baking
 
 * [Cinnamon Tea Cake](./Cinnamon%20Tea%20Cake.md)
 * [Decadent Chocolate Cake](./Decadent%20Chocolate%20Cake.md)
