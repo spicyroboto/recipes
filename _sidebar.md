@@ -3,7 +3,7 @@
 
 * [HOME](./)
 
-* [Baking](/baking/baking.md)
+* [Baking](Baking/Baking.md)
 * [Breakfast](./breakfast/index)
 * [Dinner](./dinner/index)
 * [Snacks](./snacks/index)
