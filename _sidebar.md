@@ -1,7 +1,5 @@
 <!-- docs/_sidebar.md -->
-
-
-* [HOME](./)
+RECIPES
 
 * [Baking](Baking/Baking.md)
 * [Breakfast](./breakfast/index)
