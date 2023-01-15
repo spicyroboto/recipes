@@ -24,7 +24,7 @@ Yield: 8 servings
     
 ## Instructions
 
-1. In a large pot, sauté the onions, celery and cabbage with the butter/oil until soft and translucent.
+1. In a large pot, sauté the celery and cabbage with the butter/oil until soft and translucent.
 2. Meanwhile, prep the other vegetables. 
 3. Add the diced tomatoes, as well as all of the water or broth. Bring to a boil over medium high heat, then reduce to medium heat and let simmer.
 4. Add the beets, carrots and potato to the broth. If you would like to add any other optional vegetables (ie. beans, peas, beet greens, etc.) do so now.
